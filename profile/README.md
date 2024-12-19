@@ -1,6 +1,7 @@
 # Xit FF Mobile APK ( MOD Menu) Baixar Grátis Última versão para Android IOS 2025
 O Xit FF é uma modificação criada para o Free Fire que oferece recursos avançados e hacks que não estão disponíveis na versão oficial do jogo. Com ele, jogadores podem ativar truques e vantagens estratégicas que tornam a jogabilidade mais fácil, eficiente e divertida. O aplicativo tem sido constantemente atualizado para acompanhar as novas versões do Free Fire, garantindo funcionalidade e segurança aos usuários.
 ## 👉👉 Link Download: [Xit FF APK](https://apktudo.com)
+## 🌐🌐 Junte-se à comunidade APKTudo Para baixar os jogos mais recentes gratuitamente: [Aqui](https://t.me/apktudo)
 ![Screenshot 2024-12-16 102126](https://github.com/user-attachments/assets/13aa8750-92b2-40b9-80c4-b9b1664e3ef6)
 
 ## Principais Funcionalidades do Hack e MOD Menu
